@@ -13,7 +13,7 @@ kolko kamenov mnisi prekladaju...
 Nas tim tvoria clenovia:
 
 1. Andrea Spišáková
-2.
+2. Michal Brcko
 3.
 4.
 
